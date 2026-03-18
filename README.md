@@ -25,3 +25,6 @@ P" `8.
 
 3/3/26 - Edit 3
 Questions and Hypotheses is finished and added!!!
+
+3/17/26 - Edit 4
+Homework 3 finished early and submitted ;))))
